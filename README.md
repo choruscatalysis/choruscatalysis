@@ -1,23 +1,24 @@
-ㅤㅤㅤ<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=15&pause=1000&color=DDD7C7&center=true&vCenter=true&width=300&height=20&lines=Scroll+down+for+more+information!" alt="Typing SVG" /></a>
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=fira+code&size=15&pause=1000&color=DDD7C7&center=true&vCenter=true&width=300&height=20&lines=Scroll+down+for+more+information!" alt="Typing SVG" /></a>
 
-<img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/3638ac2f-b043-4457-8660-82fca4fbbd15" />
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/3638ac2f-b043-4457-8660-82fca4fbbd15" />
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤ ㅤ <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=fira+code&size=20&pause=1000&color=620B75&center=true&vCenter=true&multiline=true&width=450&height=82&lines=Catalytically-made+song+covers;To+create+chemical+reactions+%3AD" alt="Typing SVG" /></a>
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=fira+code&size=20&pause=1000&color=620B75&center=true&vCenter=true&multiline=true&width=450&height=82&lines=Catalytically-made+song+covers;To+create+chemical+reactions+%3AD" alt="Typing SVG" /></a>
+‎ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<strong>we areㅤ.ㅤ.ㅤ.ㅤ</strong>
 
-‎<strong>we areㅤ.ㅤ.ㅤ.ㅤ</strong>
+ㅤㅤ ㅤㅤㅤㅤㅤㅤ  ㅤ   ㅤ<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=fira+code&size=40&pause=1000&color=99B62E&center=true&vCenter=true&multiline=true&width=450&height=82&lines=Chorus%3A+Catalysis" alt="Typing SVG" /></a>
 
-ㅤㅤㅤ<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=fira+code&size=40&pause=1000&color=99B62E&center=true&vCenter=true&multiline=true&width=450&height=82&lines=Chorus%3A+Catalysis" alt="Typing SVG" /></a>
+## ㅤㅤㅤㅤㅤWho are we? 🔬
 
-## Who are we? 🔬
+ㅤㅤㅤㅤㅤ ㅤㅤWe are a group of friends that make song covers for fun or coz we're bored
 
-We are a group of friends that make song covers for fun or whenever we are bored!
+ㅤㅤㅤㅤㅤ ㅤㅤWe post on [TikTok](https://www.tiktok.com/@chorus.catalysis)!
 
-We post on [TikTok](https://www.tiktok.com/@chorus.catalysis)!
+## ㅤㅤㅤㅤㅤOur Members? 🧑‍🔬
 
-## Our Members? 🧑‍🔬
+ㅤㅤㅤㅤㅤ ㅤㅤWe are 4 friends, represented by the Periodic Table.
 
-We are 4 friends, represented by the Periodic Table.
+ㅤㅤㅤㅤㅤ ㅤㅤ<sub>Sulfur 16 - 🎙️ , she/her // Chlorine 17 - 🪭 , any pronouns</sub>
 
-<sub>Sulfur 16 - 🎙️ , she/her // Chlorine 17 - 🪭 , any pronouns // Osmium 76 - 🐟 , he/him // Silver 47 - no tiktok, he/him</sub>
+ㅤㅤㅤㅤㅤ ㅤㅤ<sub>Osmium 76 - 🐟 , he/him // Silver 47 - 💎, he/him</sub>
 
-<img width="633" height="205" alt="image" src="https://github.com/user-attachments/assets/dbb65a34-c98d-434e-a8cb-c9b50a3ea698" />
+ㅤㅤㅤㅤㅤ ㅤㅤ<img width="550" height="200" alt="image" src="https://github.com/user-attachments/assets/dbb65a34-c98d-434e-a8cb-c9b50a3ea698" />
