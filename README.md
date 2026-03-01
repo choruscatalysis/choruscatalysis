@@ -1,3 +1,5 @@
+ㅤㅤㅤ<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=15&pause=1000&color=DDD7C7&center=true&vCenter=true&width=300&height=20&lines=Scroll+down+for+more+information!" alt="Typing SVG" /></a>
+
 <img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/3638ac2f-b043-4457-8660-82fca4fbbd15" />
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=fira+code&size=20&pause=1000&color=620B75&center=true&vCenter=true&multiline=true&width=450&height=82&lines=Catalytically-made+song+covers;To+create+chemical+reactions+%3AD" alt="Typing SVG" /></a>
