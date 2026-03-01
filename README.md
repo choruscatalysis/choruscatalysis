@@ -21,4 +21,7 @@
 
 ㅤㅤㅤㅤㅤ ㅤㅤ<sub>Osmium 76 - 🐟 , he/him // Silver 47 - 💎, he/him</sub>
 
+ㅤㅤㅤㅤㅤ ㅤㅤ<sub>Chlorine 17 and Osmium 76 co-own Chorus: Catalysis.</sub>
+
+
 ㅤㅤㅤㅤㅤ ㅤㅤ<img width="550" height="200" alt="image" src="https://github.com/user-attachments/assets/dbb65a34-c98d-434e-a8cb-c9b50a3ea698" />
