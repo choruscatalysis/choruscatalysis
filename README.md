@@ -3,7 +3,7 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/3638ac2f-b043-4457-8660-82fca4fbbd15" />
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤ ㅤ <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=fira+code&size=20&pause=1000&color=620B75&center=true&vCenter=true&multiline=true&width=450&height=82&lines=Catalytically-made+song+covers;To+create+chemical+reactions+%3AD" alt="Typing SVG" /></a>
 
-‎ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<strong>we areㅤ.ㅤ.ㅤ.ㅤ</strong>
+‎ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<strong>we areㅤ.ㅤ.ㅤ.ㅤ</strong>
 
 ㅤㅤ ㅤㅤㅤㅤㅤㅤ  ㅤ   ㅤ<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=fira+code&size=40&pause=1000&color=99B62E&center=true&vCenter=true&multiline=true&width=450&height=82&lines=Chorus%3A+Catalysis" alt="Typing SVG" /></a>
 
