@@ -19,7 +19,7 @@
 
 ㅤㅤㅤㅤㅤ ㅤㅤ<sub>Sulfur 16 - 🎙️ , she/her // Chlorine 17 - 🪭 , any pronouns</sub>
 
-ㅤㅤㅤㅤㅤ ㅤㅤ<sub>Osmium 76 - 🐟 , he/him // Silver 47 - 💎, he/him</sub>
+ㅤㅤㅤㅤㅤ ㅤㅤ<sub>Osmium 76 - 🐟 , he/him // Silver 47 - 💎, he/him // Neptunium 93 - 🪐, he/him</sub>
 
 ㅤㅤㅤㅤㅤ ㅤㅤ<sub>Chlorine 17 and Osmium 76 co-own Chorus: Catalysis.</sub>
 
