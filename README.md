@@ -15,7 +15,7 @@
 
 ## ㅤㅤㅤㅤㅤOur Members? 🧑‍🔬
 
-ㅤㅤㅤㅤㅤ ㅤㅤWe are 4 friends, represented by the Periodic Table.
+ㅤㅤㅤㅤㅤ ㅤㅤWe are 5 friends, represented by the Periodic Table.
 
 ㅤㅤㅤㅤㅤ ㅤㅤ<sub>Sulfur 16 - 🎙️ , she/her // Chlorine 17 - 🪭 , any pronouns</sub>
 
