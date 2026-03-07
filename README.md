@@ -15,11 +15,11 @@
 
 ## ㅤㅤㅤㅤㅤOur Members? 🧑‍🔬
 
-ㅤㅤㅤㅤㅤ ㅤㅤWe are 5 friends, represented by the Periodic Table.
+ㅤㅤㅤㅤㅤ ㅤㅤWe are 7 friends, represented by the Periodic Table / Chemical Compounds
 
-ㅤㅤㅤㅤㅤ ㅤㅤ<sub>Sulfur 16 - 🎙️ , she/her // Chlorine 17 - 🪭 , any pronouns</sub>
+ㅤㅤㅤㅤㅤ ㅤㅤ<sub>Sulfur 16 - 🎙️ , she/her // Chlorine 17 - 🪭 , any pronouns // Cerium 58 - 🪽 , no prns/they </sub>
 
-ㅤㅤㅤㅤㅤ ㅤㅤ<sub>Osmium 76 - 🐟 , he/him // Silver 47 - 💎, he/him // Neptunium 93 - 🪐, he/him</sub>
+ㅤㅤㅤㅤㅤ ㅤㅤ<sub>Osmium 76 - 🐟 , he/him // Silver 47 - 💎, he/him // Neptunium 93 - 🪐, he/him // Cortisol - ⏰ , he/him</sub>
 
 ㅤㅤㅤㅤㅤ ㅤㅤ<sub>Chlorine 17 and Osmium 76 co-own Chorus: Catalysis.</sub>
 
